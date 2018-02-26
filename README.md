@@ -1,2 +1,0 @@
-# Thuur.Staring
-reclame
